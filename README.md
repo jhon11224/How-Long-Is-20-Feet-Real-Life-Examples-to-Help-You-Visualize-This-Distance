@@ -1,0 +1,1 @@
+# How-Long-Is-20-Feet-Real-Life-Examples-to-Help-You-Visualize-This-Distance
